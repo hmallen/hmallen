@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hanging clocks daily in hopes of a head-injury and subsequent inspiration for an invention that makes time-travel possible.
 
 <!--
 **hmallen/hmallen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
